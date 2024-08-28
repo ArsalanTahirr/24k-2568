@@ -5,7 +5,7 @@ I have just completed my 2nd year and with the help of Allah Almighty I have fin
 Beside academics I also have a bunch of hobbies like:
 - Badminton
 - Book reading
-- E gaming
+- E gaming__
 I have also worked upon my soft skills during my college year:
 1. I got a certficate of Word Associate.
 2. I have good communication skills.
